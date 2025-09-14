@@ -1,6 +1,6 @@
 # Pengudusan dalam Kehidupan Sehari-hari
 
-Translasi dari buku: _John Piper - Sanctification in the Everyday_
+[Pengudusan dalam kehidupan sehari-hari](pengudusan-dalam-kehidupan-sehari-hari.md) adalah translasi bahasa Indonesia dari buku yang sudah diparafrasekan dari buku: [John Piper - Sanctification in the Everyday](https://www.desiringgod.org/books/sanctification-in-the-everyday)
 
-Sumber:
-https://www.desiringgod.org/books/sanctification-in-the-everyday
+Terjemahan langsung dari buku ini (yang belum diparafrasekan) dapat di check di [santification-in-the-everyday-en.md](sanctification-in-the-everyday-en.md)
+
