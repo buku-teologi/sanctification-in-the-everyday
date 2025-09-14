@@ -43,39 +43,57 @@ The reason there is a way of life that fits the gospel is that what happened on 
 When Charles Wesley taught us to sing, “He breaks the power of cancelled sin,"[^2] he was teaching the fundamental truth about how the cross and our battle with sin are related. The cross cancels sins for all who believe on Jesus. Then on the basis of that cancellation of our sins, the power of our actual sinning is broken. It’s not the other way around. There would be no gospel and no music if we tried to sing, “He cancels the guilt of conquered sins.” No! First the cancellation. Then the conquering.
 There are many ways that the New Testament shows how this works. Here are three: 1) in the death of Christ we died; 2) in the death of Christ we were bought; 3) in the death of Christ we were forgiven.
 And in each of these cases, a power is unleashed from the cross that expresses itself through our volitional attack on sin. In other words, in each of these three cases, the way the cross becomes effective in our conquering cancelled sin is by empowering our will to oppose sin in our lives.
-1. In the death of Christ we died.
-“We have been united with him in a death like his” (Romans 6:5; see also Romans 7:4; Galatians 2:20; Colossians 3:3).
-  Therefore:
-  “You also must consider yourselves dead to sin”
-  (Romans 6:11).
-  “Let not sin therefore reign in your mortal body,”
-  (Romans 6:12).
-2. In the death of Christ we were bought.
-“You are not your own, for you were bought with a price” (1 Corinthians 6:19–20).
-  Therefore:
-  “Glorify God in your body” (1 Corinthians 6:20).
-3. In the death of Christ we were forgiven.
-“God in Christ forgave you” (Ephesians 4:32).
-  Therefore:
-  “Be kind to one another, tenderhearted, forgiving one another”
-  (Ephesians 4:32).
+
+**1. In the death of Christ we died.**
+> We have been united with him in a death like his
+(Romans 6:5; see also Romans 7:4; Galatians 2:20; Colossians 3:3).
+
+Therefore:
+> “You also must consider yourselves dead to sin”
+(Romans 6:11).
+> “Let not sin therefore reign in your mortal body,”
+(Romans 6:12).
+
+**2. In the death of Christ we were bought.**
+> “You are not your own, for you were bought with a price” (1 Corinthians 6:19–20).
+
+Therefore:
+> “Glorify God in your body” (1 Corinthians 6:20).
+
+**3. In the death of Christ we were forgiven.**
+> “God in Christ forgave you” (Ephesians 4:32).
+  
+Therefore:
+> “Be kind to one another, tenderhearted, forgiving one another”
+(Ephesians 4:32).
+
 So in every case, the decisive impulse for our holiness and our sin-killing is the death of Christ. Which means that the decisive power for our conquering sin is Christ’s canceling sin. That is, the only sin that we can defeat is a forgiven sin.
+
 If we try to defeat an unforgiven sin — that is, if we try to conquer our sin before it is canceled — we become our own saviors; we nullify the justification of the ungodly (Romans 4:4–5), and we head straight for despair and suicide.
-The Link: Our Empowered Will
+
+## The Link: Our Empowered Will
 But don’t miss this: In each of these three cases (in the death of Christ we died, we were bought, and we were forgiven), the link between the cross and our conquered sin is our empowered will. Our will, engaged to fight sin with blood-bought power. I say that because in each of these three cases the statement of our death, our purchase, and our forgiveness was made the cause of a command addressed to our will. “Let not sin reign in your body.” “Glorify God in your body.” And “Be kind to one another, tender hearted, forgiving one another.” Those commands are addressed to us. They engage our will.
+
 And the power that engages and enlivens and carries our will, so that it will be clear that our willing is a cross-exalting willing, is the power of the Holy Spirit, which is given to us precisely because of the death of Christ for us. The Holy Spirit is a blood-bought, new covenant gift of God (Romans 8:3­5; 7:4; Galatians 2:20).
+
 Which means that the link between the cross and our conquered sin is a Holy-Spirit empowered will. Listen to these texts that describe this reality:
-Romans 7:6 — “We died to that which held us captive, so that we serve in the new way of the Spirit and not in the old way of the written code.” I serve in the newness of the Spirit.
-Romans 8:13— “By the Spirit you put to death the deeds of the body.” I put sin to death, by the Spirit.
+* Romans 7:6 — “We died to that which held us captive, so that we serve in the new way of the Spirit and not in the old way of the written code.” I serve in the newness of the Spirit.
+* Romans 8:13— “By the Spirit you put to death the deeds of the body.” I put sin to death, by the Spirit.
 Galatians 2:20— “I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me.” The life I now live . . . Christ lives in me.”
-1 Peter 4:11— “Whoever serves, let him do it as one who serves by the strength that God supplies — in order that in everything God may be glorified through Jesus Christ.” I serve, but in the strength that God supplies. And it is a blood-bought supply.
-1 Corinthians 15:10— “By the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is with me.” I worked. But it was the grace of God that was working in my working.
+* 1 Peter 4:11— “Whoever serves, let him do it as one who serves by the strength that God supplies — in order that in everything God may be glorified through Jesus Christ.” I serve, but in the strength that God supplies. And it is a blood-bought supply.
+* 1 Corinthians 15:10— “By the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is with me.” I worked. But it was the grace of God that was working in my working.
+
 In every single case, this is the way it works: I am working. I am willing. I am serving. I am putting sin to death. My will is engaged. But in every case, our will is empowered by another will: the will of the Spirit, the will of Christ, the will of God, the will of grace
-Conscious, Willed Opposition to Specific Sins
+
+## Conscious, Willed Opposition to Specific Sins
 So, once again, the link between the cross and the conquered sin in our lives is our Holy-Spirit empowered will. And that empowering by the Spirit is blood-bought. “God’s love has been poured into our hearts through the Holy Spirit who has been given to us. For while we were still weak, at the right time Christ died for the ungodly” (Romans 5:5–6).
+
 In other words, God intends that part of our experience of sanctification be the conscious, willed, opposition to specific sins in our lives. I only say “part” of our experience of sanctification because this is not the whole work of sanctification. In some areas of sin God simply takes away the desire and the temptation is gone and we don’t have to fight that fight any more.
+
 But none of these commands I have referred to (for example, to serve and to put sin to death) would be in the Bible if God did not intend that some sins be defeated by conscious opposition from our wills in the power of the Holy Spirit.
-A Personal Breakthrough
+
+## A Personal Breakthrough
+
 Now here is what God showed me during the eight month leave of absence: I have applied the truth above valiantly to sexual temptation but hardly at all to the sins of anger, self-pity, blaming, and sullenness. I have engaged my will head-on concerning sexual lust. I have heard Jesus say, “If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell” (Matthew 5:29). Nobody spontaneously tears out his eye. That is an act of will overcoming all kinds of natural disinclination. That’s what I do when any illicit sexual thought tries to gain the ascendancy in my mind.
 I go on the attack with A N T H E M.
 AVOID.
