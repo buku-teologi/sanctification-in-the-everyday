@@ -95,67 +95,96 @@ But none of these commands I have referred to (for example, to serve and to put 
 ## A Personal Breakthrough
 
 Now here is what God showed me during the eight month leave of absence: I have applied the truth above valiantly to sexual temptation but hardly at all to the sins of anger, self-pity, blaming, and sullenness. I have engaged my will head-on concerning sexual lust. I have heard Jesus say, “If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell” (Matthew 5:29). Nobody spontaneously tears out his eye. That is an act of will overcoming all kinds of natural disinclination. That’s what I do when any illicit sexual thought tries to gain the ascendancy in my mind.
-I go on the attack with A N T H E M.
-AVOID.
-Say NO! within five seconds.
-TURN to something magnificent, like Christ crucified.
-HOLD the pure thing in the mind until the dirty thing is gone.
-ENJOY the greater pleasure of the blood-bought promises of God.
-MOVE on to meaningful Christ-exalting activity.
+I go on the attack with **A N T H E M**.
+* **AVOID**.
+* Say **NO**! within five seconds.
+* **TURN** to something magnificent, like Christ crucified.
+* **HOLD** the pure thing in the mind until the dirty thing is gone.
+* **ENJOY** the greater pleasure of the blood-bought promises of God.
+* **MOVE** on to meaningful Christ-exalting activity.
+
 There is nothing passive in my will when the lion of lust comes out of the bushes. I don’t lie down and wait for a miracle. I act the miracle.
+
 What I realized was that I was not applying any of this same gospel vigilance — what Peter O’Brien calls “continuous, sustained, strenuous effort” against my most besetting sins. I was strangely passive and victim-like. I had the unarticulated sense (mistakenly) that these sins (unlike sexual lust) should be defeated more spontaneously. It should all happen naturally from the inside out. “Out of the abundance of the heart the mouth speaks” (Matthew 12:34). And if I tried to attack them with my will the way I did sexual lust, it would produce external conformity, not internal change. But I never let that thought stop me from attacking lust.
-Three Truths in a Fresh Light
+
+## Three Truths in a Fresh Light
 The text that broke through was Philippians 2:12­–13,
 
-    Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure.
+> Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure.
   
 I saw three things in a fresh light.
+
 1. I saw afresh that the verb, “work out your salvation” (Greek katergazesthe) means produce, or bring about, or effect. And Peter O’Brien in his Philippians commentary sums it up with the phrase “continuous, sustained, strenuous effort.” As dangerous as this language is, it is biblical. “Bring about your salvation.” “Produce your salvation.” “Effect your salvation by continuous, sustained, strenuous, effort.” I knew that was one key strategy that had given me victory in the area of sexual temptation. So why not in the other sins of my life?
 2. I saw afresh that the salvation I was to work out was not only the large reality of total deliverance, but also the concrete reality of salvation from anger, and salvation from self-pity, and salvation from blaming, and salvation from sullenness.
 So I resolved that I would work out my salvation from these sins. I would bring about deliverance from anger and self-pity and blaming and sullenness.
 3. I saw afresh the connection between “fear and trembling” on the one hand and God working in me on the other. “Work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure.”
-A Tremble-Worthy Reality
+
+## A Tremble-Worthy Reality
 Why should there be “fear and trembling” as I attack my sin and bring about salvation from self-pity? The reason given in the text is not a threat. It’s a gift. Work and will to kill your sin, and do it with fear and trembling, because God Almighty, Maker of heaven and earth, Redeemer, Justifier, Sustainer, Father, Lover is so close to you that your working and willing are his working and willing.
-Tremble at this breathtaking thought. God Almighty is in you. God is the one in you willing. God is the one in you working. Your “continuous, sustained, strenuous” effort is not only being carried out in the very presence of an all-holy God, but is the very continuous, sustained, strenuous effort of God himself. You are not waiting for a miracle. You are acting a miracle. Your action is God’s action in fighting your sin. Your willing is God’s willing.Now let me close with an illustration.
-Waging War Through the Gospel
+
+Tremble at this breathtaking thought. God Almighty is in you. God is the one in you willing. God is the one in you working. Your “continuous, sustained, strenuous” effort is not only being carried out in the very presence of an all-holy God, but is the very continuous, sustained, strenuous effort of God himself. You are not waiting for a miracle. You are acting a miracle. Your action is God’s action in fighting your sin. Your willing is God’s willing.
+
+Now let me close with an illustration.
+
+## Waging War Through the Gospel
 Last Sunday evening, it was cozy and snowy and Noël and Talitha and I were home alone. I was looking forward to something we would all do together. Talitha came in from the dining room and said, “Mommy and I are going to watch Super Nanny on the computer.” They set it up on the stool across the room in front of the loveseat and started watching. Without me.
+
 Now at that moment the temptation for anger, self-pity, blaming, and sullenness were as dangerous to my soul as a sexual temptation. So I immediately said no to the rising temptations and quietly went upstairs without any flair of woundedness.
+
 In my study, I waged war. I turned my mind and heart toward the promises of God, and the surety of the cross, and love of the Father, and wealth of my inheritance, and the blessings of that Lord’s day, and the patience of Christ. And I held them there. I beat down the anger and self-pity and blaming and sullenness. And I kept beating till they were effectively gone.
+
 Later that night I mentioned to Noël in a non-condemning tone, that I was surprised that we didn’t do anything together. We worked it out. It had been largely a miscommunication. And compared to the way things used to go, it was a great victory.
-Yes, it would be far better if there did not have to be any war at all. That will come. But until then, I thank God that he cancels sin at the cross and that he breaks the power of canceled sin, and he does it sometimes through our Spirit-empowered will that fights with all its might. . . trembling, because it is God himself willing in our willing.PRACTICAL HELP FOR PRAYING FOR HELP[iii]
+
+Yes, it would be far better if there did not have to be any war at all. That will come. But until then, I thank God that he cancels sin at the cross and that he breaks the power of canceled sin, and he does it sometimes through our Spirit-empowered will that fights with all its might. . . trembling, because it is God himself willing in our willing.
+
+# PRACTICAL HELP FOR PRAYING FOR HELP[^3]
 In this sermon I want to talk very practically about how to live the Christian life — and more specifically, how prayer fits into that hour-by-hour activity.
 Let me begin by describing the Christian life with three biblical phrases:
-1. Living by Faith in the Son of God
-Living the Christian life means living by faith in the son of God.
-  Galatians 2:20,
 
-    I have been crucified with Christ. It is no longer I who live but Christ who lives in me, and the life I now live in the flesh, I live by faith in the Son of God who loved me and gave himself for me.
+**1. Living by Faith in the Son of God**
+ 
+Living the Christian life means living by faith in the son of God.
+
+Galatians 2:20,
+> I have been crucified with Christ. It is no longer I who live but Christ who lives in me, and the life I now live in the flesh, I live by faith in the Son of God who loved me and gave himself for me.
   
 So the Christian life is an hour-by-hour trusting in Jesus Christ. (Trusting him for what? We will see in a moment.)
-2. Walking by the Spirit
-Living the Christian life means walking by the Spirit.
-  Galatians 5:16,
 
-    Walk by the Spirit, and do not gratify the desires of the flesh." Verse 25, "If we live by the Spirit, let us also walk by the Spirit." (cf. Romans 8:4.)
+**2. Walking by the Spirit**
+
+Living the Christian life means walking by the Spirit.
+
+Galatians 5:16,
+> Walk by the Spirit, and do not gratify the desires of the flesh." Verse 25, "If we live by the Spirit, let us also walk by the Spirit." (cf. Romans 8:4.)
   
 So the Christian life is an hour-by-hour walking by the help of the Holy Spirit. (How do you do that?)
-3. Serving in the Strength That God Supplies
-Living the Christian life means serving in the strength that God supplies.
-  1 Peter 4:11,
 
-    . . . whoever renders service let him render it by the strength which God supplies; in order that in everything God may be glorified through Jesus Christ.
+**3. Serving in the Strength That God Supplies**
+
+Living the Christian life means serving in the strength that God supplies.
+
+1 Peter 4:11,
+> ... whoever renders service let him render it by the strength which God supplies; in order that in everything God may be glorified through Jesus Christ.
   
 So the Christian life is serving the needs of others by the strength of God so that God gets the glory for your service.
+
 Now if we put all this together, we can say that when you live the Christian life, you live so that hour by hour Christ gets trusted, you get helped, people get served, and God gets glory. The reason we exist as a church is to help each other live like that.
-How Does Prayer Fit into Christian Living?
+
+## How Does Prayer Fit into Christian Living?
 Now specifically I want to ask how prayer fits in to this hour-by-hour Christian living. We know that prayer is right at the heart of this hour-by-hour life because 1 Thessalonians 5:17 says, "Pray without ceasing." And Ephesians 6:19 says, "Pray at all times in the Spirit." And Luke tells us in 18:1 that "Jesus told a parable to the effect that they ought always to pray and not to lose heart." So we can see clearly that part of the hour-by-hour walk of a Christian is hour-by-hour praying.
+
 What I want to do is show you from Scripture how to seek help from God (i.e., pray) for living the Christian life. What I am going to say can be summed up in five steps. I formulated these five steps about five years ago during a sermon series on Galatians. Since that time they have become very much a part of my daily life.
+
 So how do you live the Christian life? How do you live so that Christ gets trusted and you get helped and people get helped and God gets glory? This is one answer and only part of the answer, but it has proven for some of us to be a crucial guide.
-The Situation in Mind
+
+## The Situation in Mind
 The kind of situation I have in mind for using these five steps is virtually any situation in which you aim to obey God. But I know it is unrealistic and artificial to think that any of us could or should go through some formula before every single action of the day. There are too many and they come too close together. So practically what I have in mind are those situations that feel especially challenging or threatening — acts of obedience and service that could be dangerous, or embarrassing, or situations where temptation will be great, or where great potential good could come.
+
 For me it is preaching, certain counseling sessions, crisis calls, hospital visits, writing projects, personal witnessing situations, board meetings, etc. In other words, how do you approach and enter the stressful, threatening, or challenging situations of life so that Christ is trusted, you are helped, people are served, and God gets glory — how do you live the Christian life in the everyday challenges (little or big) that you face?
+
 This is what revival is all about — a church experiences revival when a large number of people get red-hot about trusting Christ, and red-hot about turning to God for help, and red-hot about loving others, especially the lost, and red-hot about showing the glory of God. That's revival. That's spiritual awakening. It's the rediscovery of radical, God-centered Christian living. And it is intensely practical. It will change more at home and work probably than it will at our church gatherings.
-Five Steps to Living the Christian Life
+
+## Five Steps to Living the Christian Life
 Let's go through the five steps together. They can be remembered by the acronym APTAT. Remember, what we are trying to discover is the practical biblical meaning of living by faith, or walking by the Spirit, or serving in the strength that God supplies. Picture yourself facing some challenge now. A confrontation with an antagonist. A difficult visit to the doctor. A chance to tell someone about what Christ means to you. A lesson to teach. A job to apply for. An exam to take. A move to make. Too many things to do in one day! What do you do so that when the challenge has passed and the day is done, you can say, "I lived by faith; I walked by the Spirit; I served in the strength that God supplied; to him be the glory"?
 I see five biblical steps. Three of the five steps are prayer.
 Step #1 — A: ADMIT
