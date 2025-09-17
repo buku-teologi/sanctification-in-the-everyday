@@ -186,176 +186,279 @@ This is what revival is all about — a church experiences revival when a large 
 
 ## Five Steps to Living the Christian Life
 Let's go through the five steps together. They can be remembered by the acronym APTAT. Remember, what we are trying to discover is the practical biblical meaning of living by faith, or walking by the Spirit, or serving in the strength that God supplies. Picture yourself facing some challenge now. A confrontation with an antagonist. A difficult visit to the doctor. A chance to tell someone about what Christ means to you. A lesson to teach. A job to apply for. An exam to take. A move to make. Too many things to do in one day! What do you do so that when the challenge has passed and the day is done, you can say, "I lived by faith; I walked by the Spirit; I served in the strength that God supplied; to him be the glory"?
+
 I see five biblical steps. Three of the five steps are prayer.
-Step #1 — A: ADMIT
+
+**Step #1 — A: ADMIT**
+
 Admit that without Christ you can do nothing.
+
 None of us can please God, live by faith, walk by the Spirit, or serve in God's strength until we admit our utter helplessness without Christ — physically, morally, and spiritually. Let me mention four levels of helplessness that we need to see and admit from our hearts.
+
 Four Levels of Our Helplessness Without Christ
-We would not have come into being without Christ. John 1:2–3, "He was in the beginning with God. All things were made through him, and without him was not any thing made that was made." Your eternal personhood was created by Christ out of nothing. You would not exist without him.
-We would vanish out of existence without the moment-by-moment sustaining of Christ. Colossians 1:17, "He is before all things and in him all things hold together." Or as Acts 17:25, "God gives to all mankind life and breath and everything." Every breath we take we owe to Christ. We are utterly helpless without his creating and sustaining power.
-We would have no true virtue without his work in our soul. 1 Corinthians 2:14, "The natural person [i.e., the person without the Spirit of Christ] does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned." Until the Spirit of Christ invades our soul and gives us a spiritual taste, we recoil at spiritual things. So we are utterly helpless to love God and live for God's sake without the renovating power of Christ.
+
+1. We would not have come into being without Christ. John 1:2–3, "He was in the beginning with God. All things were made through him, and without him was not any thing made that was made." Your eternal personhood was created by Christ out of nothing. You would not exist without him.
+2. We would vanish out of existence without the moment-by-moment sustaining of Christ. Colossians 1:17, "He is before all things and in him all things hold together." Or as Acts 17:25, "God gives to all mankind life and breath and everything." Every breath we take we owe to Christ. We are utterly helpless without his creating and sustaining power.
+3. We would have no true virtue without his work in our soul. 1 Corinthians 2:14, "The natural person [i.e., the person without the Spirit of Christ] does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned." Until the Spirit of Christ invades our soul and gives us a spiritual taste, we recoil at spiritual things. So we are utterly helpless to love God and live for God's sake without the renovating power of Christ.
 Therefore, we are helpless to bear fruit without Christ. That is, the abiding significance of our lives will be zero without the power of Christ.
-    Only one life
-    'Twill soon be past
-    Only what's done for Christ
+
+    Only one life\
+    'Twill soon be past\
+    Only what's done for Christ\
     Will last.
+
 So I remember John 15:5 where Jesus says, "I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing." By the world's standards we may accomplish much without Christ (like build an institution, or produce a blockbuster movie). But from God's perspective, without Christ our lives are like little, shriveled, fruitless twigs.
-A Humble Fact
+
+**A Humble Fact**
+
 So Step #1 as we face the tasks of our lives is to say to God, as a prayer: O Lord, I can't do anything without you. Without Christ, I wouldn't exist; I wouldn't take another breath; I wouldn't know or love you; and there will be no fruit from what I am about to do. This is an act of great humility. This is where living by faith, and walking by the Spirit begins.
+
 King Solomon faced the challenge of governing a great nation. How did he pray for help? He said (in 1 Kings 3:7), "O Lord my God, you have made your servant king in place of David my father, although I am but a little child. I do not know how to go out or come in." In other words he admits his helplessness without God. I am no more capable of ruling this people without you than is a little child.
+
 Or consider Jeremiah's cry for help (Jeremiah 10:23f.), "I know, O Lord, that the way of man is not in himself, that it is not in man who walks to direct his steps. Correct me, O Lord, but in justice; not in your anger, lest you bring me to nothing." Before he asks for help, he admits that a man's way is not in himself. "Man proposes, God disposes" (Proverbs 16:9; see also Genesis 18:27; Psalm 86:1; Isaiah 66:2; Luke 18:13; 2 Corinthians 3:5.)
+
 Living by faith, and walking by the Spirit begins with the admission of helplessness.
 
-    When you bow your head to pray
-    Let the first thing that you say
-    Be a lowly word and meek:
-    "I admit that I am weak."
+    When you bow your head to pray\
+    Let the first thing that you say\
+    Be a lowly word and meek:\
+    "I admit that I am weak."\
   
 That is Step #1 in living so that Christ gets trusted and you get helped and people get served and God gets glory.
-Step #2 — P: PRAY
+
+**Step #2 — P: PRAY**
+
 Pray for God's help!
+
 You are about to make that difficult phone call, or talk to your colleague about Christ, or take the test, or start your new job, or reprimand an employee, or enter the doctor's office, or preach a sermon. You may be in the car or an office or a classroom, or kitchen or waiting room or behind a pulpit.
+
 You admit from your heart that without Christ this is going to be a wash. Then you very simply, and very humbly pray like this, "O Lord, help me! Please help me." And you may get specific: "help me not to forget anything important"; "help me to love this person"; "help me to be wise"; "help me to accept the news with hopefulness"; "help me not to be bitter"; "help him to accept what I say"; "help me not to forget whose I am."
-The Example of Asa
+
+**The Example of Asa**
+
 Asa, king of Judah, gives us a beautiful example of Step #1 and Step #2 when Serah the king of Ethiopia came against him with one million men and three hundred chariots in the valley Zephathah. 2 Chronicles 14:11 says,
 
-    Asa cried to the Lord his God, “O Lord, there is none like you to help, between the mighty and the weak. Help us, O Lord our God!"
+> Asa cried to the Lord his God, “O Lord, there is none like you to help, between the mighty and the weak. Help us, O Lord our God!"
   
 "We are weak, help us, O our God!" The very heart of Christian living is to admit our weakness and to seek strength and help from God. God commands it in Psalm 50:15, "Call upon me in the day of trouble; I will deliver you and you shall glorify me."
+
 That's the answer to the question how to live so that you get help and God gets glory. Pray for help from God. The one who gives the help gets the glory. That's what it says in Psalm 50. You get help. God gets glory. Or as the Lord said to Paul, when he cried out for help: "My power is made perfect in [your] weakness" (2 Corinthians 12:9).
 
-    Jesus loves me this I know
-    For the Bible tells me so,
-    Little ones to him belong,
+    Jesus loves me this I know\
+    For the Bible tells me so,\
+    Little ones to him belong,\
     They are weak but he is strong.
+
 That song is not just for kids. When you face your day, admit your helplessness, and pray for help from God. (See also Psalm 18:3; 22:19; 34:15, 17; 38:22; 56:9; 91:15; Mark 9:24; Hebrews 4:16.)
-Step #3 — T: TRUST
+
+**Step #3 — T: TRUST**
+
 Trust in a promise of God suited to your need.
+
 This is the way that the action you are about to take becomes an act of faith. This is what Paul meant when he said in Galatians 2:20 that the life he now lives he lives by faith in the Son of God. Living by faith means overcoming obstacles to obedience by trusting promises of help and future happiness.
+
 An act is an act of faith when the strength to do it comes through trusting in a promise of God. When you bank on God's help and his promise of happiness to get you through your task, then you are living by faith, and walking by the Spirit.
-How to Do the Right Thing
+
+**How to Do the Right Thing**
+
 Every day we are confronted with choices — to do right or to do wrong, to be honest or dishonest, to be loving or to be indifferent, to forgive or to go on holding a grudge, to speak of Christ or to be silent, to go do my assignment or to put it off, to go to follow God's leading to the mission field or to stay home. And every day there are obstacles to making the right choice: fear, pride, addiction to comfort — and these come in all shapes and sizes.
+
 How do you bring yourself to do the right thing so that Christ gets trusted, you get helped, people get served, and God gets glory? Answer:
-Admit you can't do it without Christ.
-Pray for God's help. And then...
-Trust in some promise that assures you that the world's incentive toward disobedience is not as great as God's incentive toward obedience.
+
+1. Admit you can't do it without Christ.
+2. Pray for God's help. And then...
+3. Trust in some promise that assures you that the world's incentive toward disobedience is not as great as God's incentive toward obedience.
+
 This is not a passive thing. It is an active, disciplined tactical maneuver in the fight of faith. If you have time, you go to your Bible and look for some promise suited for your specific challenge. For example, if you are struggling for the strength to let a grudge go and be kind to your enemy, go to the promise in Romans 12:19, "Vengeance is mine, I will repay, says the Lord." And trust that the Lord can and will settle accounts far more justly and fairly than you ever could. Roll that burden onto him.
-An Arsenal of Promises
+
+**An Arsenal of Promises**
+
 But there are times when we do not have time to look through the Bible for a tailor-made promise. So we all need to have an arsenal of general promises ready to use whenever fear or addiction to comfort threaten to lead us astray or make us weak. Here are a few of my most proven weapons:
-"Fear not, for I am with you. Be not dismayed, for I am your God. I will strengthen you. I will help you. I will uphold you with my righteous right hand" (Isaiah 41:10). I have slain more dragons in my soul with that sword than any other I think. It is a precious weapon to me.
-"He who did not spare his own Son but gave him up for us all, how will he not also with him graciously give us all things?" (Romans 8:32). How many times I have been persuaded in the hour of trial by this verse that the reward of disobedience could never be greater than "all things."
-Jesus said, "All authority in heaven and on earth has been given to me . . . And behold, I am with you always, to the end of the age." (Matthew 28:18, 20). How many times have I strengthened my sagging spirit with the assurance that the Lord of heaven and earth is just as much with me today as he was with the disciples on earth!
-"Call upon me in the day of trouble; I will deliver you and you shall glorify me" (Psalm 50:15).
-"My God will supply every need of yours according to his riches in glory in Christ Jesus" (Philippians 4:19).
+
+* "Fear not, for I am with you. Be not dismayed, for I am your God. I will strengthen you. I will help you. I will uphold you with my righteous right hand" (Isaiah 41:10). I have slain more dragons in my soul with that sword than any other I think. It is a precious weapon to me.
+* "He who did not spare his own Son but gave him up for us all, how will he not also with him graciously give us all things?" (Romans 8:32). How many times I have been persuaded in the hour of trial by this verse that the reward of disobedience could never be greater than "all things."
+* Jesus said, "All authority in heaven and on earth has been given to me . . . And behold, I am with you always, to the end of the age." (Matthew 28:18, 20). How many times have I strengthened my sagging spirit with the assurance that the Lord of heaven and earth is just as much with me today as he was with the disciples on earth!
+* "Call upon me in the day of trouble; I will deliver you and you shall glorify me" (Psalm 50:15).
+* "My God will supply every need of yours according to his riches in glory in Christ Jesus" (Philippians 4:19).
+
 Be constantly adding to your arsenal of promises. Every morning look for a new one to take with you through the day. And when the hour of challenge and trial comes, get the strength to do right by trusting a specific promise from the Word of God.
-Step #4 — A: ACT
+
+**Step #4 — A: ACT**
+
 Act with humble confidence in God's help.
+
 This might seem so obvious that it wouldn't need mentioning. But it does because there are some who say that since Christ is supposed to live his life through you ("I am crucified with Christ. It is no longer I but Christ who lives in me."), you should not do anything — that is, simply wait until you are, as it were, carried along by another will. Well this is simply not what the Bible teaches. The Spirit of God does not cancel out our will. The work of God does not cancel out our work. The Spirit transforms our will. And God works in us so that we can work. So Philippians 2:12–13 says, "Work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure."
+
 When you have admitted to God that you can do nothing without him, and prayed for his help, and trusted his promise, then go ahead, act! And in that act Christ will be trusted, you will be helped, others will be served, and God will get glory. Which will lead naturally to the last of our five steps.
-Step #5 — T: THANK
+
+**Step #5 — T: THANK**
+
 Thank God for the good that comes.
+
 This is what you naturally do if 1 Peter 4:11 has really happened, namely, serving in the strength that God supplies. God gave the help, God gets the glory, and that starts with our thanks.
+
 This is what Paul was urging when he said in Colossians 3:17, "Do everything in the name of the Lord Jesus, giving thanks to God the Father through him." When you have the grace to do a thing in the name of Jesus, that is, for his glory and by faith in his promise, then give God thanks!
+
 Or if the person you are trying to change experiences a change of heart, then thank God! It is God who changes hearts and brings good intentions. "Thanks be to God, who put into the heart of Titus the same earnest care I have for you" (2 Corinthians 8:16; see also Romans 7:25; 1 Corinthians 1:14; 2 Corinthians 2:14; 1 Thessalonians 1:12;2 Thessalonians 2:13; 1 Timothy 1:12.)
-Conclusion
+
+## Conclusion
 Christian, be a Christian: live by faith; walk by the Spirit; serve in the strength that God supplies.
+
 That is, live in such a way that Christ gets trusted, you get helped, people get served, and God gets glory.
-When you face a challenge or a temptation, do APTAT:
 
-    A: Admit that without Christ you can do nothing.
-    P: Pray for God's help.
-    T: Trust in a promise suited to your need.
-    A: Act with humble confidence in God's help.
-    T: Thank him for the good that comes.
+When you face a challenge or a temptation, do **APTAT**:
+
+* **A**: Admit that without Christ you can do nothing.
+* **P**: Pray for God's help.
+* **T**: Trust in a promise suited to your need.
+* **A**: Act with humble confidence in God's help.
+* **T**: Thank him for the good that comes.
   
-The first two and the last are acts of prayer. So let us remember that prayer is not a mere devotional interlude in the real business of living; it is the pathway of faith and obedience. There is no other. JUSTIFIED TO BREAK THE POWER OF SIN[iv]
-Romans 6:5–10For if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his. 6We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. 7For one who has died has been set free from sin. 8Now if we have died with Christ, we believe that we will also live with him. 9We know that Christ, being raised from the dead, will never die again; death no longer has dominion over him. 10For the death he died he died to sin, once for all, but the life he lives he lives to God.
+The first two and the last are acts of prayer. So let us remember that prayer is not a mere devotional interlude in the real business of living; it is the pathway of faith and obedience. There is no other. 
+
+# JUSTIFIED TO BREAK THE POWER OF SIN[^4]
+Romans 6:5–10
+> For if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his. 6We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. 7For one who has died has been set free from sin. 8Now if we have died with Christ, we believe that we will also live with him. 9We know that Christ, being raised from the dead, will never die again; death no longer has dominion over him. 10For the death he died he died to sin, once for all, but the life he lives he lives to God.
+
 I begin with a general statement about the believer's union with Christ: Because of our union with Christ, we have died with him and we will most surely rise with him from the dead.
-What You Should Ask
+
+## What You Should Ask
 Now immediately on hearing that you should ask, "Is that really what you want to say? Don't you mean to say, 'Because of our union with Christ, we have died with him and we have been raised with him, not: we will most surely rise with him?' Don't you mean to say, 'Since we are united with him and he has risen, we were in him and also rose with him'? Isn't that present experience of resurrection implied in verse 4b: 'As Christ was raised from the dead through the glory of the Father, so we too might walk in newness of life'? And verse 11: 'Consider yourselves to be dead to sin, but alive to God in Christ Jesus'? And verse 13b: 'Present yourselves to God as those those who have been brought from death to life?'"
+
 "And doesn't it say in Ephesians 2:5, 'When we were dead in our transgressions, [God] made us alive together with Christ . . . and raised us up with him'? And in Colossians 3:1 doesn't it say, 'If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God'? (see also Colossians 2:12). So surely what you mean to say, Pastor John, is, 'Because of our union with Christ, we have died with him and we have been raised with him.'"
-Honoring Two Truths
+
+# Honoring Two Truths
 My answer is yes. Yes, I want to honor the biblical truth that our union with Christ means that we now "walk in newness of life" (Romans 6:4), and we now are "alive to God" (Romans 6:11), and we now are "alive from the dead" (Romans 6:13), and we "have been raised up with him" (Ephesians 2:6; Colossians 3:1). But I also want to honor the biblical truth of Romans 6:5 and verse 8. Verse 5: "For if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his." That sounds very future. It's the same in verse 8: "Now if we have died with Christ, we believe that we will also live with him." Again our resurrection is future. And I want to honor the meaning of Romans 8:11, "If the Spirit of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you." Again, our union with Christ by his Spirit guarantees our future resurrection. And it's the same in 2 Corinthians 4:14, "He who raised the Lord Jesus will raise us also with Jesus."
+
 And one of the reasons I want to say it the way Paul says it in Romans 6 is because he may be protecting himself from a heresy that was afoot in his day. Listen to his description of the heresy in 2 Timothy 2:17–18. He warns against those whose talk "will spread like gangrene. Among them are Hymenaeus and Philetus, who have swerved from the truth, saying that the resurrection has already happened. They are upsetting the faith of some." The heresy was that "The resurrection has already happened." So it is possible to take the biblical truth from Ephesians 2:6 and Colossians 3:1 and Romans 6:4, 11, 13 and turn it into a gangrene-like heresy.
+
 So how shall we not do that? Answer: We will say what the text says in Romans 6:5 and 8, and then we will ponder how this fits with the other rest of the truth. And what the text says in verse 5 is, "If we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his." And what the text says in verse 8 is, "If we have died with Christ, we believe that we will also live with him." So yes, what I want to say for my general statement, "Because of our union with Christ, we have died with him and we will most surely rise with him from the dead."
-The Now-Effect of Future Reality
+
+# The Now-Effect of Future Reality
 Now here is what this means: One way that our death with Christ works newness of life now (freedom from sin now) is by the effect this death has on our future. I'm getting this straight from the logic of verses 5 and 8. Be sure you see it. Both verses have an "if . . . then" construction. Verse 5: "If we have been united to him in a death like his, [then] we shall certainly be in united in a resurrection like his." Verse 8: "If we have died with Christ, [then] we believe that we will also live with him." So one crucial point for Paul is that our death with Christ guarantees the life and glory of our future.
+
 Believing this is utterly crucial to experience the present power of Christ's resurrection in our lives. Believing that our future is gloriously secure and happy in Christ is one way that we experience the power of Christ now to free us from sin. Paul develops this in two different ways: one in verses 5–7 and the other in verses 8–10.
-Paul's Argument in Romans 6:8–10
-Starting with verses 8–10, look at how important it is to believe that your future is secure in Christ. Notice the word "believe" in verse 8: "Now if we have died with Christ, we believe that we will also live with him." That is what we believe. That is our confidence — that our future is secure and firm and unshakable and happy in Christ. This is
+
+**Paul's Argument in Romans 6:8–10**
+
+Starting with verses 8–10, look at how important it is to believe that your future is secure in Christ. Notice the word "believe" in verse 8: "Now if we have died with Christ, we believe that we will also live with him." That is what we believe. This is how we consciously experience the benefits of union with Christ. We believe them. We bank on them. We rest in them. We are satisfied by them.
+
 Then look at how Paul buttresses this faith in the future. His argument in verses 9–10 has five steps:
-Christ died to sin once for all. Verse 10a: " For the death he died he died to sin, once for all." That is, Christ really died, and when he died he dealt with sin so completely that his death never has to be repeated. It is once for all. He took care of the sin problem for all who are in him.
-Then he rose from the dead. Verse 9a: "We know that Christ, being raised from the dead. . ." The work was done. Sin was dealt with completely. That is why he died. So there was no reason for him to remain dead. So he rose.
-Now the life he lives, he lives to God. Verse 10b: "but the life he lives he lives to God." In dying he satisfied the claims of sin; and in living he satisfies the claims of God. His resurrection-life is a life utterly oriented on and for the glory of God, with the problem of sin finished and done with.
-Therefore, he is triumphant over death. Verse 9b: "death no longer has dominion over him." Death is a defeated foe. Christ is master of death, not the other way around. Jesus holds the keys of death and hell. Death serves his purposes and has no final authority over him.
-Therefore, Jesus will never die. He is indestructible, forever. Verse 9a: "We know that Christ, being raised from the dead, will never die again." Jesus will never die again.
+
+1. Christ died to sin once for all. Verse 10a: " For the death he died he died to sin, once for all." That is, Christ really died, and when he died he dealt with sin so completely that his death never has to be repeated. It is once for all. He took care of the sin problem for all who are in him.
+2. Then he rose from the dead. Verse 9a: "We know that Christ, being raised from the dead. . ." The work was done. Sin was dealt with completely. That is why he died. So there was no reason for him to remain dead. So he rose.
+3. Now the life he lives, he lives to God. Verse 10b: "but the life he lives he lives to God." In dying he satisfied the claims of sin; and in living he satisfies the claims of God. His resurrection-life is a life utterly oriented on and for the glory of God, with the problem of sin finished and done with.
+4. Therefore, he is triumphant over death. Verse 9b: "death no longer has dominion over him." Death is a defeated foe. Christ is master of death, not the other way around. Jesus holds the keys of death and hell. Death serves his purposes and has no final authority over him.
+5. Therefore, Jesus will never die. He is indestructible, forever. Verse 9a: "We know that Christ, being raised from the dead, will never die again." Jesus will never die again.
+
 All of that great argument is given by Paul to support the belief of verse 8b: "we believe that we will also live with him." He means for us to feel the firmness of those five steps in our soul by faith. We must believe, trust, be confident that we will "live with him" forever. If we are united to Christ by this faith, we have died with Christ; our sin problem has been dealt with; we will rise; we will live to God; death will not be master over us; we will never die again; we will share in his indestructibility.
+
 That is what Paul wants us to believe and to experience. That confidence. That hope. That security. That satisfaction. That's what God is for us in Christ Jesus. And believing it is what makes our union with Christ a powerful and effective experience now, not just in the future.
+
 This is why Paul stresses the effect that dying with Christ has on our future. Because in believing that — in being hope-filled and secure and satisfied in that future with Christ — the power of sin is broken in the present. Sin can't enslave a person who is utterly confident and sure and hope-filled in the infinite happiness of life with Christ in the future. So Paul stresses in verse 8 that our death with Christ secures our triumphant resurrection with him in the future. That is the point of verses 9–10. Believing that is how our death with Christ becomes powerful in the present.
+
 Now that is one way Paul develops the relation between dying with Christ and our future (verses 8–10). He does it a very different way in verses 5–7. So let's look finally at the way he argues here for the connection between our death with Christ and our future resurrection with him.
-Paul's Argument in Romans 6:5–7
+
+**Paul's Argument in Romans 6:5–7**
+
 Notice that the unit begins the same way that verses 8–10 do, namely, with the connection between our death with Christ and our future resurrection with him. Verse 5: "For if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his." That is given as the basis of our walking in newness of life in verse 4. So it is crucial and powerful for Paul that we know that we will be united with Christ in a resurrection like his. Believing that and hoping in that is essential, just like we saw in verse 8.
+
 But now Paul argues for this link between our death with Christ and our future resurrection in a very different way than in verses 8–10. There he focused on Christ's indestructible life. Here he focuses on our transformed life.
+
 He says in verse 5, you are going to be united in a resurrection like Christ's. Verse 6, "We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin." In other words, he argues that your death with Christ certifies and guarantees your future resurrection because it secures your freedom from the slavery of sin. Your old self was crucified. Which means that your body is no longer the helpless accomplice of sin. Instead you are freed from slavery to sin and the body can now become the instrument of righteousness.
+
 So verse 6 supports the certainty of our resurrection with Christ by showing that death with Christ sanctifies us. It changes us and breaks the power of sin in our lives. This doesn't mean that sanctification (holiness) earns resurrection, but it does mean that there will be no resurrection without it (see verse 22: "But now that you have been set free from sin and have become slaves to God, the fruit you get leads to sanctification and its end, eternal life.")
+
 Which raises a question, doesn't it? What about justification? Aren't we acquitted and accepted and declared righteous by faith alone? Isn't that what secures our final resurrection with Christ? How does justification fit in?
-The Connection to Justification
+
+## The Connection to Justification
 Paul gives the answer in verse 7, but the English versions make that hard to see by translating the word "justified" as "freed." Verse 7 says, "For one who has died has been set free from sin." Everywhere else in Paul's writings (26 uses of the verb dikaios) the meaning of this word is "justify" or "acquit" or "vindicate." Nowhere else in Paul does it have the meaning "free" in the moral sense of freeing from sin.
+
 So how then would verse 7 argue for verse 6? Verse 6 says, in essence, "Our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin." Now verse 7 says, "For [that is, because] one who has died has been set free from sin." It is really easy here to jump to the conclusion that since justification from sin argues for no longer being slaves to sin, it must then not mean what it usually means (the declaration of innocence), but rather real transformation of behavior.
+
 But that seems superficial to me, for this reason: how are people enslaved to sin? One way is by the powerful lure of sin. It is attractive. And if that is the only way that sin holds us in bondage, then verse 7 probably would have to mean: "He who has died is freed from this powerful attraction of sin." And "justified" would not have its ordinary meaning.
-The Bondage of Blinding Guilt
+
+## The Bondage of Blinding Guilt
 But there is a deeper way that sin enslaves people and holds them captive. And I have seen it do this horrible work in recent years. Sin creates a blinding guilt that makes a person feel hopeless and despairing that they could ever be forgiven and included among the righteous. This is deeper and more terrible than slavery to the lure of sin. This is slavery to the blinding despair of sin.
+
 You ask a person in this slavery to sin, "Don't you realize that the promise of sin is a lie, and that you are on a dead-end street to destruction?" And amazingly, they may agree with you, and perhaps say something like, "I know, but it doesn't make any difference. There is no hope for me anyway." Here is a person not only in bondage to the lure of sin, but even more terribly, in bondage to the despairing blindness of sin's guilt. They can't make any progress in fighting the lure of sin, because they feel no hope in escaping the guilt of sin.
+
 Now if there is such a slavery as that, then verse 7 is perfectly designed to describe the remedy. It goes like this. Verse 6: "Our old self was crucified with him so that we would no longer be enslaved to sin." How so? How does death with Christ free us from slavery to sin. The answer of verse 7: The death of Christ goes first to the deepest root of slavery, not the lure of sin, but the blinding and hope-destroying guilt of sin, and says, "He who has died is justified from sin." The guilt is taken away before the lure is broken.
+
 Which means this in summary: In overcoming the power of sin in our lives we are not first given the moral ability to break sin's allurement; we are first given the personal legal right to break the despair that says "I cannot be forgiven and declared righteous." We call this justification. To put it another way, justification is the foundation of sanctification which, in turn, is the certification that we are on our way to a resurrection with Christ in union with him.
-So the main point of verses 5–10 is that union with Christ secures our eternal resurrection life of joy with Christ. It does so in two ways: 1) it unites us to Christ who himself is alive with indestructible life and cannot die; and 2) it unites us to Christ who justifies us and takes away the blinding despair that we are hopeless in our sin. And from this place of indestructible hope, we grow in our ability to defeat the deceptive lures of sin, and give our lives away in love.APPENDIX:
-  ACRONYMS FOR EVERYDAY
+
+So the main point of verses 5–10 is that union with Christ secures our eternal resurrection life of joy with Christ. It does so in two ways: 1) it unites us to Christ who himself is alive with indestructible life and cannot die; and 2) it unites us to Christ who justifies us and takes away the blinding despair that we are hopeless in our sin. And from this place of indestructible hope, we grow in our ability to defeat the deceptive lures of sin, and give our lives away in love.
+
+# APPENDIX: ACRONYMS FOR EVERYDAY
 Over the course of John Piper's preaching and teaching ministry he has developed a handful of acronyms to help believer's connect the Bible to their daily lives. The topics range from our fight against sin to facing an array of challenges in our work and relationships. The goal is to bring the biblical vision of God and his gospel down to the nitty-gritty (where we spend most of our time).
-ANTHEM: For Fighting Lust[v]
-A– Avoid as much as possible and reasonable the sights and situations that arouse unfitting desire. I say "possible and reasonable" because some exposure to temptation is inevitable. And I say "unfitting desire" because not all desires for sex, food, and family are bad. We know when they are unfitting and unhelpful and on their way to becoming enslaving. We know our weaknesses and what triggers them. "Avoiding" is a Biblical strategy. "Flee youthful passions and pursue righteousness" (2 Timothy 2:22). "Make no provision for the flesh, to gratify its desires" (Romans 13:14).
-N– Say No to every lustful thought within five seconds. And say it with the authority of Jesus Christ. "In the name of Jesus, No!" You don't have much more than five seconds. Give it more unopposed time than that, and it will lodge itself with such force as to be almost immovable. Say it out loud if you dare. Be tough and warlike. As John Owen said, "Be killing sin or it will be killing you." Strike fast and strike hard. "Resist the devil, and he will flee from you" ( James 4:7).
-T– Turn the mind forcefully toward Christ as a superior satisfaction. Saying "no" will not suffice. You must move from defense to offense. Fight fire with fire. Attack the promises of sin with the promises of Christ. The Bible calls lust "deceitful desires" (Ephesians 4:22). They lie. They promise more than they can deliver. The Bible calls them "passions of your former ignorance" (1 Peter 1:14). Only fools yield. "All at once he follows her, as an ox goes to the slaughter" (Proverbs 7:22). Deceit is defeated by truth. Ignorance is defeated by knowledge. It must be glorious truth and beautiful knowledge. This is why I wrote Seeing and Savoring Jesus Christ. We must stock our minds with the superior promises and pleasures of Jesus. Then we must turn to them immediately after saying, "NO!"
-H– Hold the promise and the pleasure of Christ firmly in your mind until it pushes the other images out. "Fix your eyes on Jesus" (Hebrews 3:1). Here is where many fail. They give in too soon. They say, "I tried to push it out, and it didn't work." I ask, "How long did you try?" How hard did you exert your mind? The mind is a muscle. You can flex it with vehemence. Take the kingdom violently (Matthew 11:12). Be brutal. Hold the promise of Christ before your eyes. Hold it. Hold it! Don't let it go! Keep holding it! How long? As long as it takes. Fight! For Christ's sake, fight till you win! If an electric garage door were about to crush your child you would hold it up with all our might and holler for help, and hold it and hold it and hold it and hold it.
-E– Enjoy a superior satisfaction. Cultivate the capacities for pleasure in Christ. One reason lust reigns in so many is that Christ has so little appeal. We default to deceit because we have little delight in Christ. Don't say, "That's just not me." What steps have you taken to waken affection for Jesus? Have you fought for joy? Don't be fatalistic. You were created to treasure Christ with all your heart — more than you treasure sex or sugar. If you have little taste for Jesus, competing pleasures will triumph. Plead with God for the satisfaction you don't have: "Satisfy us in the morning with your steadfast love, that we may rejoice and be glad all our days" (Psalm 90:14). Then look, look, look at the most magnificent Person in the universe until you see him the way he is.
-M– Move into a useful activity away from idleness and other vulnerable behaviors. Lust grows fast in the garden of leisure. Find a good work to do, and do it with all your might. "Do not be slothful in zeal, be fervent in spirit, serve the Lord" (Romans 12:11). "Be steadfast, immovable, always abounding in the work of the Lord" (1 Corinthians 15:58). Abound in work. Get up and do something. Sweep a room. Hammer a nail. Write a letter. Fix a faucet. And do it for Jesus' sake. You were made to manage and create. Christ died to make you "zealous for good deeds" (Titus 2:14). Displace deceitful lusts with a passion for good deeds.
-APTAT: For the Everyday Challenges[vi]
-A– I acknowledge that apart from Christ I can do nothing of eternal value (John 15:5). I acknowledge with Paul in Romans 7:18, "For I know that nothing good dwells in me, that is, in my flesh." I acknowledge that the old "I" which loved to deny this fact was crucified with Christ.
-P– I pray. I pray with Paul in 1 Thessalonians 3:12 that Christ would make me abound in love. I pray that grace might reign in my life through righteousness (Romans 5:21). I pray that God would produce in me the obedience he demands (Hebrews 13:21; 2 Thessalonians 1:11).
-T– I trust. This is the key because Galatians 3:5 says, "Does he who supplies the Spirit to you and works miracles among you do so by works of the law, or by hearing with faith?" In other words, the ongoing work of the Spirit to enable us to love as we ought happens only as we trust the promises of God (Galatians 5:6). So by faith I lay hold on a promise like Isaiah 41:10: "Fear not, for I am with you, be not dismayed, for I am your God; I will strengthen you, I will help you, I will uphold you with my righteous right hand." I trust that as I act, it will not be I but the power of Christ in me and me only clinging to him in faith.
-A– I act in obedience to God's word. But, O, what a world of difference now between such an act and what Paul calls works of law. The acknowledgment that I am helpless, the prayer for divine enablement, the trust that Christ himself is my help and strength —these transform the act so that it is a fruit of the Spirit, not a work of the flesh.
-T– Finally, when the deed is done and the day is over, I thank God for whatever good may have come of my life (Colossians 1:3–5). I thank him for conquering, at least in some measure, my selfishness and pride. I give him the glory (1 Peter 4:11).
+
+## ANTHEM: For Fighting Lust[v]
+**A** – Avoid as much as possible and reasonable the sights and situations that arouse unfitting desire. I say "possible and reasonable" because some exposure to temptation is inevitable. And I say "unfitting desire" because not all desires for sex, food, and family are bad. We know when they are unfitting and unhelpful and on their way to becoming enslaving. We know our weaknesses and what triggers them. "Avoiding" is a Biblical strategy. "Flee youthful passions and pursue righteousness" (2 Timothy 2:22). "Make no provision for the flesh, to gratify its desires" (Romans 13:14).
+
+**N** – Say No to every lustful thought within five seconds. And say it with the authority of Jesus Christ. "In the name of Jesus, No!" You don't have much more than five seconds. Give it more unopposed time than that, and it will lodge itself with such force as to be almost immovable. Say it out loud if you dare. Be tough and warlike. As John Owen said, "Be killing sin or it will be killing you." Strike fast and strike hard. "Resist the devil, and he will flee from you" ( James 4:7).
+
+**T** – Turn the mind forcefully toward Christ as a superior satisfaction. Saying "no" will not suffice. You must move from defense to offense. Fight fire with fire. Attack the promises of sin with the promises of Christ. The Bible calls lust "deceitful desires" (Ephesians 4:22). They lie. They promise more than they can deliver. The Bible calls them "passions of your former ignorance" (1 Peter 1:14). Only fools yield. "All at once he follows her, as an ox goes to the slaughter" (Proverbs 7:22). Deceit is defeated by truth. Ignorance is defeated by knowledge. It must be glorious truth and beautiful knowledge. This is why I wrote Seeing and Savoring Jesus Christ. We must stock our minds with the superior promises and pleasures of Jesus. Then we must turn to them immediately after saying, "NO!"
+
+**H** – Hold the promise and the pleasure of Christ firmly in your mind until it pushes the other images out. "Fix your eyes on Jesus" (Hebrews 3:1). Here is where many fail. They give in too soon. They say, "I tried to push it out, and it didn't work." I ask, "How long did you try?" How hard did you exert your mind? The mind is a muscle. You can flex it with vehemence. Take the kingdom violently (Matthew 11:12). Be brutal. Hold the promise of Christ before your eyes. Hold it. Hold it! Don't let it go! Keep holding it! How long? As long as it takes. Fight! For Christ's sake, fight till you win! If an electric garage door were about to crush your child you would hold it up with all our might and holler for help, and hold it and hold it and hold it and hold it.
+
+**E** – Enjoy a superior satisfaction. Cultivate the capacities for pleasure in Christ. One reason lust reigns in so many is that Christ has so little appeal. We default to deceit because we have little delight in Christ. Don't say, "That's just not me." What steps have you taken to waken affection for Jesus? Have you fought for joy? Don't be fatalistic. You were created to treasure Christ with all your heart — more than you treasure sex or sugar. If you have little taste for Jesus, competing pleasures will triumph. Plead with God for the satisfaction you don't have: "Satisfy us in the morning with your steadfast love, that we may rejoice and be glad all our days" (Psalm 90:14). Then look, look, look at the most magnificent Person in the universe until you see him the way he is.
+
+**M** – Move into a useful activity away from idleness and other vulnerable behaviors. Lust grows fast in the garden of leisure. Find a good work to do, and do it with all your might. "Do not be slothful in zeal, be fervent in spirit, serve the Lord" (Romans 12:11). "Be steadfast, immovable, always abounding in the work of the Lord" (1 Corinthians 15:58). Abound in work. Get up and do something. Sweep a room. Hammer a nail. Write a letter. Fix a faucet. And do it for Jesus' sake. You were made to manage and create. Christ died to make you "zealous for good deeds" (Titus 2:14). Displace deceitful lusts with a passion for good deeds.
+
+## APTAT: For the Everyday Challenges[^6]
+**A** – I acknowledge that apart from Christ I can do nothing of eternal value (John 15:5). I acknowledge with Paul in Romans 7:18, "For I know that nothing good dwells in me, that is, in my flesh." I acknowledge that the old "I" which loved to deny this fact was crucified with Christ.
+
+**P** – I pray. I pray with Paul in 1 Thessalonians 3:12 that Christ would make me abound in love. I pray that grace might reign in my life through righteousness (Romans 5:21). I pray that God would produce in me the obedience he demands (Hebrews 13:21; 2 Thessalonians 1:11).
+
+**T** – I trust. This is the key because Galatians 3:5 says, "Does he who supplies the Spirit to you and works miracles among you do so by works of the law, or by hearing with faith?" In other words, the ongoing work of the Spirit to enable us to love as we ought happens only as we trust the promises of God (Galatians 5:6). So by faith I lay hold on a promise like Isaiah 41:10: "Fear not, for I am with you, be not dismayed, for I am your God; I will strengthen you, I will help you, I will uphold you with my righteous right hand." I trust that as I act, it will not be I but the power of Christ in me and me only clinging to him in faith.
+
+**A** – I act in obedience to God's word. But, O, what a world of difference now between such an act and what Paul calls works of law. The acknowledgment that I am helpless, the prayer for divine enablement, the trust that Christ himself is my help and strength —these transform the act so that it is a fruit of the Spirit, not a work of the flesh.
+
+**T** – Finally, when the deed is done and the day is over, I thank God for whatever good may have come of my life (Colossians 1:3–5). I thank him for conquering, at least in some measure, my selfishness and pride. I give him the glory (1 Peter 4:11).
+
 APTAT: A — Acknowledge your inability to do good on your own. P — Pray for divine enablement. T — Trust the promises of God for help and strength and guidance. A — Act in obedience to God's Word. T — Thank God for whatever good comes.
+
 If you feel that this makes too little of you and too much of God, then I urge you to check your testimony against that of Paul who said in 1 Corinthians 15:10, "I worked harder than any of them, though it was not I, but the grace of God which was with me." And in Romans 15:18, "I will not venture to speak of anything except what Christ has accomplished through me."
+
 Through the Spirit (not the flesh), by faith (not works), we wait for the hope of righteousness. Only when that is true can we say, "I am sure that the one who began a good work in me, he (and he alone!) will bring it to completion at the day of Jesus Christ" (Philippians 1:6).
-IOUS: For Reading the Bible[vii]
-I– Incline! The first thing my soul needs is an inclination toward God and his Word. Without that, nothing else will happen of any value in my life. I must want to know God and read his Word and draw near to him. Where does that “want to” come from? It comes from God. So Psalm 119:36 teaches us to pray, “Incline my heart to your testimonies, and not to selfish gain!” Very simply we ask God to take our hearts, which are more inclined to breakfast and the newspaper, and change that inclination. We are asking that God create desires that are not there.
-O– Open! Next I need to have the eyes of my heart opened so that when my inclination leads me to the Word, I see what is really there, and not just my own ideas. Who opens the eyes of the heart? God does. So Psalm 119:18 teaches us to pray, “Open my eyes, that I may behold wondrous things out of your law.” So many times we read the Bible and see nothing wonderful. Its reading does not produce joy. So what can we do? We can cry to God: “Open the eyes of my heart, O Lord, to see what it says about you as wonderful.”
-U– Unite! Then I am concerned that my heart is badly fragmented. Parts of it are inclined, and parts of it are not. Parts see wonder, and parts say, “That’s not so wonderful.” What I long for is a united heart where all the parts say a joyful Yes! to what God reveals in his Word. Where does that wholeness and unity come from? It comes from God. So Psalm 86:11 teaches us to pray, “Unite my heart to fear your name.” Don’t stumble over the word fear when you thought we were seeking joy. The fear of the Lord is a joyful experience when you renounce all sin. A thunderstorm can be a trembling joy when you know you can’t be destroyed by lightning. “O Lord, let your ear be attentive to . . . the prayer of your servants who delight to fear your name” (Nehemiah 1:11). “His delight shall be in the fear of the Lord” (Isaiah 11:3). Therefore pray that God would unite your heart to joyfully fear the Lord.
-S– Satisfy! What I really want from all this engagement with the Word of God and the work of his Spirit in answer to my prayers is for my heart to be satisfied with God and not with the world. Where does that satisfaction come from? It comes from God. So Psalm 90:14 teaches us to pray, “Satisfy us in the morning with your steadfast love, that we may rejoice and be glad all our days.”
-AIMS: For Christ-consciousness Throughout the Day[viii]
+
+## IOUS: For Reading the Bible[^7]
+**I** – Incline! The first thing my soul needs is an inclination toward God and his Word. Without that, nothing else will happen of any value in my life. I must want to know God and read his Word and draw near to him. Where does that “want to” come from? It comes from God. So Psalm 119:36 teaches us to pray, “Incline my heart to your testimonies, and not to selfish gain!” Very simply we ask God to take our hearts, which are more inclined to breakfast and the newspaper, and change that inclination. We are asking that God create desires that are not there.
+
+**O** – Open! Next I need to have the eyes of my heart opened so that when my inclination leads me to the Word, I see what is really there, and not just my own ideas. Who opens the eyes of the heart? God does. So Psalm 119:18 teaches us to pray, “Open my eyes, that I may behold wondrous things out of your law.” So many times we read the Bible and see nothing wonderful. Its reading does not produce joy. So what can we do? We can cry to God: “Open the eyes of my heart, O Lord, to see what it says about you as wonderful.”
+
+**U** – Unite! Then I am concerned that my heart is badly fragmented. Parts of it are inclined, and parts of it are not. Parts see wonder, and parts say, “That’s not so wonderful.” What I long for is a united heart where all the parts say a joyful Yes! to what God reveals in his Word. Where does that wholeness and unity come from? It comes from God. So Psalm 86:11 teaches us to pray, “Unite my heart to fear your name.” Don’t stumble over the word fear when you thought we were seeking joy. The fear of the Lord is a joyful experience when you renounce all sin. A thunderstorm can be a trembling joy when you know you can’t be destroyed by lightning. “O Lord, let your ear be attentive to . . . the prayer of your servants who delight to fear your name” (Nehemiah 1:11). “His delight shall be in the fear of the Lord” (Isaiah 11:3). Therefore pray that God would unite your heart to joyfully fear the Lord.
+
+**S** – Satisfy! What I really want from all this engagement with the Word of God and the work of his Spirit in answer to my prayers is for my heart to be satisfied with God and not with the world. Where does that satisfaction come from? It comes from God. So Psalm 90:14 teaches us to pray, “Satisfy us in the morning with your steadfast love, that we may rejoice and be glad all our days.”
+
+## AIMS: For Christ-consciousness Throughout the Day[^8]
 Along with IOUS and APTAT and ANTHEM I now use AIMS to help me maintain my Christ-consciousness through the day.
+
 Two times in his second letter Peter said he meant to stir us up “by way of reminder” (2 Peter 1:13; 3:1). This is what I need all day long. Reminders of massive truth.
+
 If my mind is empty or worldly, my faith languishes. My joy in Christ weakens. I need truth. “You will know the truth, and the truth will set you free” (John 8:32).
+
 My mind needs glory: “Set your minds on things that are above” (Colossians 3:2). I need to think on excellent praiseworthy reality:. “If there is any excellence, if there is anything worthy of praise, think about these things” (Philippians 4:8).
+
 But my mind drifts into banal and trivial things. And my soul shrivels.
+
 What shall I do? I “will call to mind” amazing things about God (Lamentations 3:21). I will “remember” his all-gracious covenant (1 Chronicles 16:15). I will set my mind on “the things of the Spirit” (Romans 8:5). I will “consider his wondrous works” (Psalm 106:7)
+
 How?
+
 Among other ways, with AIMS. Through the day I will pause and ask, What are you’re AIMS. And I will answer:
-A– Alive. I will call to mind the stupendous truth that Jesus is alive. (Luke 24:5–6)
 
-    “Why do you seek the living among the dead? He is not here, but has risen.”
+**A** – Alive. I will call to mind the stupendous truth that Jesus is alive. (Luke 24:5–6)
+> “Why do you seek the living among the dead? He is not here, but has risen.”
   
-I– In. I will remember the breathtaking reality that Jesus is in me. (Romans 8:10).
-
-    “Christ is in you.”
+**I** – In. I will remember the breathtaking reality that Jesus is in me. (Romans 8:10).
+> “Christ is in you.”
   
-M– Mighty. I will ponder the all-comforting fact that Jesus is mighty. (Matthew 28:18).
-
-    "All authority in heaven and on earth has been given to me.”
+**M** – Mighty. I will ponder the all-comforting fact that Jesus is mighty. (Matthew 28:18).
+> "All authority in heaven and on earth has been given to me.”
   
-S– Satisfying. And I will savor the sweetness that Jesus is satisfying. (John 6:35)
-
-    "Whoever believes in me shall never thirst."
+**S** – Satisfying. And I will savor the sweetness that Jesus is satisfying. (John 6:35)
+> "Whoever believes in me shall never thirst."
 
 # Catatan Kaki:
 [^1]: This sermon was originally preached on February 24, 2011. Stream or download the audio and video online: http://www.desiringgod.org/resource-library/conference-messages/i-act-the-miracle
