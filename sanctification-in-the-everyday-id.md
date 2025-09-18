@@ -39,3 +39,55 @@ Pertanyaan yang kita ajukan adalah: Bagaimana Injil menaklukkan dosa-dosa sepert
 
 Alasan adanya cara hidup yang sesuai dengan Injil adalah karena apa yang terjadi di kayu salib Kristus tidak hanya membatalkan dosa (dosa kita) dan menyempurnakan kesempurnaan (dosa-Nya) yang mendasari pembenaran kita, tetapi, dengan melakukan itu, juga melepaskan kuasa pengudusan kita. Dan inti dari khotbah ini adalah bagaimana kuasa atas dosa kita dialami. Namun, sebelum kita sampai di sana, kita harus melihat konteks yang lebih luas untuk memastikan kita memahami bagaimana salib merupakan kunci pengudusan sekaligus pembenaran.
 
+# Salib: Kunci Pembenaran — dan Pengudusan
+Ketika Charles Wesley mengajar kita bernyanyi, “Dia mematahkan kuasa dosa yang dibatalkan,”[^2] ia mengajarkan kebenaran mendasar tentang bagaimana salib dan pergumulan kita melawan dosa saling berkaitan. Salib membatalkan dosa bagi semua orang yang percaya kepada Yesus. Kemudian, atas dasar pembatalan dosa-dosa kita itu, kuasa dosa kita yang sebenarnya dipatahkan. Bukan sebaliknya. Tidak akan ada Injil dan tidak ada musik jika kita mencoba bernyanyi, “Dia membatalkan rasa bersalah atas dosa-dosa yang telah ditaklukkan.” Tidak! Pertama pembatalan. Kemudian penaklukan.
+Ada banyak cara Perjanjian Baru menunjukkan bagaimana hal ini bekerja. Berikut tiga cara: 1) dalam kematian Kristus kita mati; 2) dalam kematian Kristus kita dibeli; 3) dalam kematian Kristus kita diampuni.
+Dan dalam setiap kasus ini, suatu kuasa dilepaskan dari salib yang mengekspresikan dirinya melalui serangan kehendak kita terhadap dosa. Dengan kata lain, dalam ketiga kasus ini, cara salib menjadi efektif dalam menaklukkan dosa yang dibatalkan adalah dengan memberdayakan kemauan kita untuk menentang dosa dalam hidup kita.
+
+**1. Dalam kematian Kristus kita telah mati.**
+> Kita telah dipersatukan dengan-Nya dalam kematian yang serupa dengan kematian-Nya
+(Roma 6:5; lihat juga Roma 7:4; Galatia 2:20; Kolose 3:3).
+
+Oleh karena itu:
+> “Hendaklah kamu juga memandang dirimu telah mati bagi dosa”
+(Roma 6:11).
+> “Karena itu, janganlah dosa berkuasa lagi di dalam tubuhmu yang fana,”
+(Roma 6:12).
+
+**2. Dalam kematian Kristus kita telah dibeli.**
+> “Kamu bukan milik kamu sendiri, sebab kamu telah dibeli dan harganya telah lunas dibayar” (1 Korintus 6:19–20).
+
+Oleh karena itu:
+> “Muliakanlah Allah dengan tubuhmu” (1 Korintus 6:20).
+
+**3. Dalam kematian Kristus kita telah diampuni.**
+> “Allah di dalam Kristus telah mengampuni kamu” (Efesus 4:32).
+
+Oleh karena itu:
+> “Hendaklah kamu ramah seorang terhadap yang lain, penuh kasih mesra, dan saling mengampuni”
+(Efesus 4:32).
+
+Jadi, dalam setiap kasus, dorongan yang menentukan bagi kekudusan dan penghapusan dosa kita adalah kematian Kristus. Artinya, kuasa yang menentukan bagi kita untuk menaklukkan dosa adalah Kristus yang membatalkan dosa. Artinya, satu-satunya dosa yang dapat kita kalahkan adalah dosa yang telah diampuni.
+
+Jika kita mencoba mengalahkan dosa yang belum diampuni — yaitu, jika kita mencoba menaklukkan dosa kita sebelum dosa itu dibatalkan — kita menjadi juru selamat kita sendiri; kita membatalkan pembenaran orang fasik (Roma 4:4-5), dan kita langsung menuju keputusasaan dan bunuh diri.
+
+## Kaitannya: Kehendak Kita yang Diberdayakan
+Namun jangan lewatkan ini: Dalam ketiga kasus ini (dalam kematian Kristus kita mati, kita dibeli, dan kita diampuni), kaitan antara salib dan dosa kita yang telah ditaklukkan adalah kehendak kita yang diberdayakan. Kehendak kita, yang terlibat untuk melawan dosa dengan kuasa yang dibeli dengan darah. Saya mengatakan demikian karena dalam ketiga kasus ini, pernyataan kematian kita, pembelian kita, dan pengampunan kita menjadi penyebab dari sebuah perintah yang ditujukan kepada kehendak kita. "Janganlah dosa berkuasa dalam tubuhmu." "Muliakanlah Allah dengan tubuhmu." Dan "Bersikaplah ramah seorang terhadap yang lain, lemah lembut, dan saling mengampuni." Perintah-perintah itu ditujukan kepada kita. Perintah-perintah itu melibatkan kehendak kita.
+
+Dan kuasa yang melibatkan, menghidupkan, dan membawa kehendak kita, sehingga jelaslah bahwa kehendak kita adalah kehendak yang meninggikan salib, adalah kuasa Roh Kudus, yang diberikan kepada kita justru karena kematian Kristus bagi kita. Roh Kudus adalah anugerah perjanjian baru Allah yang telah ditebus dengan darah (Roma 8:35; 7:4; Galatia 2:20).
+
+Yang berarti bahwa hubungan antara salib dan dosa kita yang telah ditaklukkan adalah kehendak yang diberdayakan oleh Roh Kudus. Dengarkan ayat-ayat berikut yang menggambarkan kenyataan ini:
+* Roma 7:6 — “Kita telah mati bagi dia yang telah menjerat kita, sehingga kita melayani dalam keadaan baru menurut Roh dan bukan dalam keadaan lama menurut hukum tertulis.” Aku melayani dalam keadaan baru menurut Roh.
+* Roma 8:13— “Oleh Roh kamu mematikan perbuatan-perbuatan tubuhmu.” Aku mematikan dosa, oleh Roh.
+Galatia 2:20— “Aku telah disalibkan dengan Kristus; namun aku hidup, tetapi bukan lagi aku sendiri yang hidup, melainkan Kristus yang hidup di dalam aku. Dan hidupku yang kuhidupi sekarang di dalam daging, adalah hidup oleh iman dalam Anak Allah yang telah mengasihi aku dan menyerahkan diri-Nya untuk aku.” Hidup yang kuhidupi sekarang... Kristus hidup di dalam aku.”
+* 1 Petrus 4:11— “Siapa pun yang melayani, hendaklah ia melakukannya sebagai orang yang melayani dengan kekuatan yang dianugerahkan Allah — supaya dalam segala hal Allah dimuliakan melalui Yesus Kristus.” Saya melayani, tetapi dengan kekuatan yang dianugerahkan Allah. Dan itu adalah persediaan yang dibeli dengan darah.
+* 1 Korintus 15:10— “Karena kasih karunia Allah aku adalah sebagaimana aku ada, dan kasih karunia yang dianugerahkan-Nya kepadaku tidak sia-sia. Sebaliknya, aku telah bekerja lebih keras dari pada mereka semua; tetapi bukannya aku, melainkan kasih karunia Allah yang menyertai aku.” Saya bekerja. Tetapi kasih karunia Allah-lah yang bekerja dalam pekerjaan saya.
+
+Dalam setiap kasus, beginilah cara kerjanya: Saya bekerja. Saya bersedia. Saya melayani. Saya mematikan dosa. Kehendak saya terlibat. Tetapi dalam setiap kasus, kehendak kita diberdayakan oleh kehendak lain: kehendak Roh, kehendak Kristus, kehendak Allah, kehendak kasih karunia
+
+## Perlawanan yang Disadari dan Dikehendaki terhadap Dosa-Dosa Tertentu
+Jadi, sekali lagi, hubungan antara salib dan dosa yang telah ditaklukkan dalam hidup kita adalah kehendak kita yang diberdayakan oleh Roh Kudus. Dan pemberdayaan oleh Roh itu ditebus dengan darah. "Kasih Allah telah dicurahkan di dalam hati kita oleh Roh Kudus yang telah dikaruniakan kepada kita. Sebab waktu kita masih lemah, Kristus telah mati untuk kita orang-orang durhaka pada waktu yang ditentukan oleh Allah" (Roma 5:5-6).
+
+Dengan kata lain, Allah menghendaki agar sebagian dari pengalaman pengudusan kita menjadi perlawanan yang disadari dan dikehendaki terhadap dosa-dosa tertentu dalam hidup kita. Saya hanya mengatakan "sebagian" dari pengalaman pengudusan kita karena ini bukanlah keseluruhan karya pengudusan. Dalam beberapa aspek dosa, Allah cukup menyingkirkan keinginan itu dan godaan pun hilang, dan kita tidak perlu lagi berjuang melawannya.
+
+Tetapi tidak satu pun perintah yang telah saya sebutkan (misalnya, melayani dan mematikan dosa) akan ada di dalam Alkitab jika Tuhan tidak menghendaki agar beberapa dosa dikalahkan oleh perlawanan sadar dari keinginan kita dalam kuasa Roh Kudus.
